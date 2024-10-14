@@ -1,4 +1,4 @@
-#Hello! I'm Christopher Kvuchov Dos Santos Paris👋
+#Hello! I'm Christopher Kvuchov Dos Santos Paris👋    ![43751](https://github.com/user-attachments/assets/80b509d6-5678-483e-bed1-e9a2e1650d2d)
 
 ![kvuchov](https://github.com/user-attachments/assets/3d87def5-2bd4-48bb-8c51-986d4da89998)
 
